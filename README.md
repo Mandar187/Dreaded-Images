@@ -59,6 +59,14 @@ Every image you collect draws them closer — and your flashlight might be your 
 
 ---
 
+## 📦 Download the Game
+
+🎮 **Play Now** → [Download Dreaded Images](https://drive.google.com/your-download-link)
+
+> Just unzip, run, and start surviving with your friends#Monstarrrrrrrr.
+
+---
+
 ## 💬 Final Words
 
 > *"Every image reveals a piece of truth... but the more you know, the faster they come."*
