@@ -61,7 +61,7 @@ Every image you collect draws them closer — and your flashlight might be your 
 
 ## 📦 Download the Game
 
-🎮 **Play Now** → [Download Dreaded Images](https://drive.google.com/drive/folders/1Nh1YJlWKasa35lc4oOnJjQHPHWrQ76S6?usp=drive_link)
+🎮 **Play Now** → [Download Dreaded Images](https://drive.google.com/drive/folders/1A8m6Pg0_32fUCmosYI-aaFvbFcD08Q1h?usp=drive_link)
 
 > Just unzip, run, and start surviving with your friends#Monstarrrrrrrr.
 
